@@ -1,9 +1,10 @@
-### oie ⭐
-eu me chamo luana 
-
-eu gosto de ler 🎀
-
-de musica 🌼
-
-e desenhar
-🥀
+### oie ⭐🩷
+🌸eu me chamo luana 🍒🪻
+🩷     .🪻
+ gosto de ler 🎀 💭
+    🩷               .🍒
+🌸 de musica 🌼🩷
+ .🩷      .   🩷
+e desenhar.    .🩷
+🥀 .🍒
+🤗              🎀
